@@ -1,8 +1,12 @@
 # Code-Test-
 
-I got a pointless code test. Today tests are so non-value-added. 
+I got a pointless coding test. Nowadays, these tests add little value.
 
-Today there is tools to make AI write the code. Understand the code. And run it. Smartness then is not about the code itself. but the ecosystem understanding. The why, 
-syncronizity and createivity and value. 
+Today, there are tools that allow AI to write, understand, and run code. True smartness isn’t just about the code itself, but about understanding the ecosystem—the why, the synchrony, the creativity, and the value.
 
-Here is the answer and I dont even care about the test. 
+Here’s the answer, but I don’t even care about the test.
+
+I love this song that I used while I had to comply with HR stupidity. 
+
+https://www.youtube.com/watch?v=sQFEG84gOqo
+
