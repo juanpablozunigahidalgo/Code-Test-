@@ -4,7 +4,7 @@ I got a pointless coding test. Nowadays, these tests add no value. The company w
 
 Today, there are tools that allow AI to write, understand, and run code. Better than any human being. True smartness isn’t just about the code itself, but about understanding the ecosystem—the why, the synchrony, the creativity, and the value.
 
-I would like to express. What matters is the code utilization. Not the code itself. How to the ecosystem creates value. Please HR managers stop asking for pointless tests. Adapt to new system and use AI to create more. 
+I would like to express. What matters is the code utilization. Not the code itself. How the ecosystem creates value. Please HR managers stop asking for pointless tests. Adapt to new system and use AI to create more. 
 
 Here’s the answer.
 
